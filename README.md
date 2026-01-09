@@ -1,2 +1,3 @@
 This is part of the Jurassic World lore. I'll upload more updates to this story...
 More different stories will be uploaded.
+This story is in Spanish
